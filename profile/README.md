@@ -5,4 +5,4 @@ SamFlash Tool is the Best Samsung FRP Bypass Tool Created For Windows. This Sams
 
 
 
-## [SamFlash Tool Link Here](https://wp.me/sgC3Wc-)
+## [SamFlash Tool Link Here](https://wp.me/sgC3Wc-dl)
